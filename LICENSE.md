@@ -1,4 +1,4 @@
-# 
+# custom nft mint bot | stop-loss + liquidity-analysis offers the most advanced nft mint bot, with stop-loss and liquidity-analysis. Ideal for professional NFT traders and
 
 
 
